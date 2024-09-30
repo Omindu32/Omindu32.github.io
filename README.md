@@ -31,6 +31,11 @@ Hello there! I'm **Omindu Vinmitha Dalugama**,  an enthusiastic undergraduate st
 
 ---
 
+## Resume
+[Click Here](https://1drv.ms/b/c/5ff46023c9db0093/EdMJ0OZax0dIp_-fqJUYqFcBtV7VTlrctuz3SC-cR5ttjQ?e=xC2gEH)
+
+---
+
 ## 💼 Experience
 
 ### Customer Care Executive 
