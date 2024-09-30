@@ -1,5 +1,8 @@
 
 # Omindu Vinmitha Dalugama
+
+<img src="https://github.com/DFanso/sanuth/blob/main/The_king_pigga.jpg?raw=true" alt="Astronomy Camps" width="150" borderRadius="50%" />
+
 ### About me 
 Hello there! I'm **Omindu Vinmitha Dalugama**,  an enthusiastic undergraduate student majoring in Biotechnology at SLIIT. My passion lies at the intersection of biology and technology, where I explore the endless possibilities of scientific innovation. From the microscopic world of cells to the vast potential of genetic engineering, I am driven by a curiosity to understand and transform the living world around us.
 
