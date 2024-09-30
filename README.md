@@ -99,9 +99,11 @@ As Deputy Athletic Captain, I supported the Athletic Captain in coordinating the
 
 ---
 ## Extra Curricular Activities
+
 ### Table Tennis (2013 - 2019)
 
 It had been a key aspect of my personal development, fostering qualities like discipline, perseverance, and sportsmanship. Through regular practice and participation in tournaments, I've honed skills in technique, strategy, and mental resilience. Collaboration with teammates and coaches has also strengthened my communication and teamwork abilities.
+
 ---
 
 ### Swimming (2012 - 2014)
